@@ -2,7 +2,7 @@
 
 ## Creative Commons Attribution-NonCommercial (CC BY-NC)
 
-Copyright © 2026 [algorembrant]
+Copyright © 2023 algorembrant
 
 This work is licensed under a **Creative Commons Attribution-NonCommercial (CC BY-NC) License**. You are free to:
 
