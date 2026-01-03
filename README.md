@@ -55,30 +55,57 @@ Hi, I am the author of **Malamig na Init (MNI)** uploaded on [Wattpad](https://w
   </table>
 </div>
 
+<br>
 <div style="text-align: justify;">
 
 # Malamig na Init (MNI) – Synopsis
 
-“Who would ever think that a cliché scenery would happen, yet it is meant to be,” someone once said.  
+*"Who would ever think that a cliché scenery would happen, yet it is meant to be,"* someone once said.  
 
-“A selfish decision that costs worldly sacrifice in order to save the unknown fellows. Even if the innocent oppose me, their future will still appreciate it. But for now, they will not,” added a mullet-haired man with tattoos, carrying an unconscious child on his shoulder. “Maybe they will see me as a devil, despite my righteousness.”  
+*"A selfish decision that costs worldly sacrifice to save the unknown fellows. Even if the innocent oppose me, their future will still appreciate it. But for now, they will not,"* added a mullet-haired man with tattoos, carrying an unconscious child on his shoulder. *"Maybe they will see me as a devil, despite my righteousness."*  
 
-He murmured, “I sometimes dislike myself when I think too much… ahhhh… shit,” before finally removing his anti-radioactive suit.  
+He murmured, *"I sometimes dislike myself when I think too much… ahhhh… shit,"* before finally removing his anti-radioactive suit.  
 
-Then, the world changed forever. A meteor, undetected by satellites, struck the center of the Pacific, wiping out most of the ocean and leaving only thirty-six percent behind. The Earth bore a massive dark scar. Extreme heat evaporated the remaining water, combining with gases in the atmosphere, and deserts spread across the planet. Rain, once a symbol of life and hope, became a deadly phenomenon. It transformed living beings, including humans, into savage monsters, ravenous for blood and flesh, stripping away their humanity.  
+Then, the world changed forever. A meteor, undetected by satellites, struck the center of the Pacific, wiping out most of the ocean and leaving only thirty-six percent behind. The Earth bore a [**massive dark spot**](https://i.pinimg.com/564x/8b/8d/30/8b8d30a4292343b4cb506fe5e307b1dc.jpg). Extreme heat evaporated the remaining water, combining with gases in the atmosphere, and [**Deserts**](https://docs.google.com/document/d/1cA6xCEYKl0QZ-A8hgn4wxRUjWh9JcbX2WpDUdUfKshQ/edit) spread across the planet. **Rain**, once a symbol of life and hope, became a deadly phenomenon. It transformed living beings, including humans, into savage monsters, ravenous for blood and flesh, stripping away their humanity.  
 
-Everyone wished it were a dream. But why was it a nightmare instead? Waking up would be a fantasy denied.  
+Everyone wished it were a dream. But why was it a nightmare instead? Waking up would be a denied fantasy.  
 
-A year after the meteor, both monsters and humans had evolved drastically. Soldiers modified their military suits to confront creatures one hundred times their size. These hunters, called Bounty Hunters or Chasseurs, claim bounties in a world where adaptation had become unnatural. Perhaps an unknown entity is responsible, but it is not divine.  
+A year after the meteor, both monsters and humans had evolved drastically. Soldiers modified their military suits to confront creatures one hundred times their size. These hunters, called Bounty Hunters or **Chasseurs**, claim bounties in a world where adaptation had become unnatural. Perhaps an unknown entity is responsible, but it is not Divine.  
 
-Humans discovered ways to enhance their gear and weapons using monster corpses, enabling them to combat beasts like Mongrels and mythical creatures such as Baqunawa, Adarna, El Geqqu, and Leviathan. Artificial Intelligence brought specimens to life, creating Bio-Technologies called Drifters, capable of rivaling or surpassing human intelligence. Illegal experiments produced Mongrel soldiers, often resulting in Fallen Orions, while Anakis, beings who can shift, resist temptation, and control great power, remained mysterious.  
+[**Humans**](https://docs.google.com/document/d/1fsZ8JY3FiJwC8UIQMLLl2bYxJhs-J_xM_8ZyGD1XA2k/edit) discovered ways to enhance their gear and weapons using monster corpses, enabling them to combat [**Monster Beasts**](https://docs.google.com/document/d/1I3amau5LV80h4AHWTo9vEKcCWVpg87B0kUrp0o_UcHU/edit) like [**Mongrels**](https://docs.google.com/document/d/1-fc2DhkZjsfXW5TX8__hmSeLm9huEOC1dxSMgyOMhyE/edit) and mythical creatures such as [**Baqunawa**](https://docs.google.com/document/d/1JXxgFlXK3pO63_T9ImyICOnCwCvkzY2PZz3wgKWXV08/edit), [**Adarna**](https://docs.google.com/document/d/1nnnu8bdNWcDKuv_sKUb3zozTMS6VGttD5wIwvJq8-vA/edit), [**El Geqqu**](https://docs.google.com/document/d/1kiz6fbupFzZZJH2zv_1XSq_8qf42G-lBbFZV3y_jm9c/edit), and [**Leviathan**](https://docs.google.com/document/d/1EVrJNKM-mIhB_-JOZPqStx-cuIm3bnXEDMyYj8Erdyk/edit). Artificial Intelligence brought specimens to life, creating Bio-Technologies called [**Drifters**](https://docs.google.com/document/d/186P2Dh8gt0AhgzvOK5IKSUCi8X5tRm4n1SdNa-om4x4/edit), capable of rivaling or surpassing human intelligence. Illegal experiments produced Mongrel soldiers, often resulting in [**Fallen Orions**](https://docs.google.com/document/d/1Ss9ZcesYX00FbVcXbq34yq1mfH5S00JOIJlKuUc8zSw/edit), while [**Anakis**](https://docs.google.com/document/d/1ZrPV5UTQwh3XK1l4M_2rM0hTQb_ttkZCaCwnLftGjrw/edit), beings who can shift, resist temptation, and control great power, remained mysterious.  
 
-The world soon discovered True-Humans, beings not of Earth, with ash-gray hair, glowy warm-peach skin, and striking orange-obsidian eyes. They seemed almost godlike. Yet appearances were deceiving. Humans famed for their beauty could be monstrous, while some monsters showed kindness. In this confusing new reality, trust became the rarest commodity. Your only true ally might be yourself. Forgiving is easy, but believing again may lead to betrayal.  
+The world soon discovered **True-Humans**, beings not of Earth, with ash-gray hair, glowy warm-peach skin, and striking orange-obsidian eyes. They seemed almost godlike. Yet appearances were deceiving. Humans, famed for their beauty, could be monstrous, while some monsters showed kindness. In this confusing new reality, trust became the rarest phenomenon. Your only true ally might be yourself. Forgiving is easy, but believing again may lead to betrayal.  
 
-“Everything happens for a reason, and it is written for a purpose,” whispered the voice of a Sybil.  
+*"Everything happens for a reason, and it is written for a purpose,"* whispered the voice of a **Sybil**.  
 
 Questions linger. Why did the meteor strike undetected? Why has the rain turned deadly? Who crafted these weapons and modified monsters? Who manipulates memories? And most importantly, who are you? The line between human and monster is blurred, and survival demands answers, courage, and the realization that the world may never be as simple as it once was.
 
 </div>
+
+<br>
+
+# Inspirations
+
+The world, combat systems, and narrative of **Malamig na Init (MNI)** were inspired by a variety of media spanning movies, manga, and games. Each work contributed ideas for plot development, monster designs, combat mechanics, and technology within the story.
+
+**Combat Systems**
+- *Pacific Rim* (Movie Series) – for the advanced combat system and large-scale battles  
+- *Kaiju No. 8* (Manga Series) – for dynamic monster combat strategies  
+- *Monster Hunter* (Game Series) – for hunting, equipment upgrades, and combat mechanics  
+- *Prototype* (Game Series) – for enhanced abilities and transformation mechanics  
+
+**Plot & Storytelling**
+- *Sweet Home* (Movie Series) – for post-apocalyptic horror elements and survival themes  
+- *Leviathan Slayer* (Manga Series) – for monster lore and human-monster interaction  
+- *Maze Runner* (Movie Series) – for suspenseful world-building and survival challenges  
+- *Scorch Trial* (Movie Series) – for environmental hazards and adaptation scenarios  
+- *Death Cure* (Movie Series) – for high-stakes adventure and plot twists  
+
+**Monster & Technology Concepts**
+- *The Great Wall* (Movie Series) – for the concept of a powerful Monster Queen  
+- *The Tomorrow War* (Movie Series) – for diverse monster forms and designs  
+- *Chappie* (Movie Series) – for AI-powered robotic machines and human-machine interaction  
+
+These works collectively shaped the design, mechanics, and narrative tone of **Malamig na Init**, blending survival, horror, and epic battles in a post-apocalyptic world.
 
 
