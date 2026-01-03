@@ -1,5 +1,3 @@
-# License
-
 ## Creative Commons Attribution-NonCommercial (CC BY-NC)
 
 Copyright © 2023 algorembrant
