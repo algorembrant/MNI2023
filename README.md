@@ -3,12 +3,12 @@
     <tr>
       <td align="center">
         <a href="https://www.wattpad.com/story/362742718-malamig-na-init-engv">
-          <img src="https://github.com/user-attachments/assets/d76f7d97-44e5-4917-b26e-6fbe38823fd0" width="413" height="637" alt="image">
+          <img src="https://github.com/user-attachments/assets/d76f7d97-44e5-4917-b26e-6fbe38823fd0" width="390" height="637" alt="image">
         </a>
       </td>
       <td align="center">
         <a href="https://www.wattpad.com/story/362742718-malamig-na-init-engv">
-          <img src="https://github.com/user-attachments/assets/93762ca2-282b-4721-ae62-5f7b572a8fa0" width="413" height="637" alt="image">
+          <img src="https://github.com/user-attachments/assets/93762ca2-282b-4721-ae62-5f7b572a8fa0" width="390" height="637" alt="image">
         </a>
       </td>
     </tr>
@@ -25,7 +25,7 @@ Hi, I am the author of **Malamig na Init (MNI)** uploaded on [Wattpad](https://w
     <tr>
       <td align="center">
         <a href="https://www.wattpad.com/story/362742718-malamig-na-init-engv">
-          <img src="https://github.com/user-attachments/assets/14fd823c-d563-4e71-a5b8-bf30d532face" width="781" alt="image">
+          <img src="https://github.com/user-attachments/assets/14fd823c-d563-4e71-a5b8-bf30d532face" width="809" alt="image">
         </a>
       </td>
     </tr>
@@ -33,6 +33,16 @@ Hi, I am the author of **Malamig na Init (MNI)** uploaded on [Wattpad](https://w
 </div>
 
 
+<table align="center">
+  <tr>
+    <td align="center">
+      <img src="https://github.com/user-attachments/assets/46601d68-5559-450b-9f4c-c87a92d62028" width="390" alt="Image 1">
+    </td>
+    <td align="center">
+      <img src="https://github.com/user-attachments/assets/d7ef55ea-0252-4f80-9d92-22bab0ed79d1" width="390" alt="Image 2">
+    </td>
+  </tr>
+</table>
 
 
 
@@ -112,5 +122,10 @@ These works collectively shaped the design, mechanics, and narrative tone of **M
 
 ## Read it here on Wattpad
 [![Wattpad](https://github.com/user-attachments/assets/59744067-9565-401a-ab75-ae2e5c2adc6a)](https://www.wattpad.com/story/362742718-malamig-na-init-engv)
+
+
+
+
+
 
 
