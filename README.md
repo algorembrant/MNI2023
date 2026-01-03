@@ -108,4 +108,9 @@ The world, combat systems, and narrative of **Malamig na Init (MNI)** were inspi
 
 These works collectively shaped the design, mechanics, and narrative tone of **Malamig na Init**, blending survival, horror, and epic battles in a post‑apocalyptic world.
 
+<br>
+
+## Read it here on Wattpad
+[![Wattpad](https://github.com/user-attachments/assets/59744067-9565-401a-ab75-ae2e5c2adc6a)](https://www.wattpad.com/story/362742718-malamig-na-init-engv)
+
 
