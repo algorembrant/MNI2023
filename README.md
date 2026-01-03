@@ -89,23 +89,23 @@ Questions linger. Why did the meteor strike undetected? Why has the rain turned 
 The world, combat systems, and narrative of **Malamig na Init (MNI)** were inspired by a variety of media spanning movies, manga, and games. Each work contributed ideas for plot development, monster designs, combat mechanics, and technology within the story.
 
 **Combat Systems**
-- *Pacific Rim* (Movie Series) – for the advanced combat system and large-scale battles  
-- *Kaiju No. 8* (Manga Series) – for dynamic monster combat strategies  
-- *Monster Hunter* (Game Series) – for hunting, equipment upgrades, and combat mechanics  
-- *Prototype* (Game Series) – for enhanced abilities and transformation mechanics  
+- *Pacific Rim* ([Watch *Pacific Rim* on Netflix](https://www.netflix.com/ph-en/title/70267241)) – for the advanced combat system and large‑scale battles (official streaming page)
+- *Kaiju No. 8* ([Read *Kaiju No. 8* on MANGA Plus](https://mangaplus.shueisha.co.jp/titles/100110)) – for dynamic monster combat strategies (official manga platform)
+- *Monster Hunter* ([Official MONSTER HUNTER Portal](https://www.monsterhunter.com/)) – for hunting, equipment upgrades, and combat mechanics  
+- *Prototype* ([Prototype on Major Retailers](https://www.amazon.com/s?k=Prototype+video+game)) – for enhanced abilities and transformation mechanics (game retail listings)
 
 **Plot & Storytelling**
-- *Sweet Home* (Movie Series) – for post-apocalyptic horror elements and survival themes  
-- *Leviathan Slayer* (Manga Series) – for monster lore and human-monster interaction  
-- *Maze Runner* (Movie Series) – for suspenseful world-building and survival challenges  
-- *Scorch Trial* (Movie Series) – for environmental hazards and adaptation scenarios  
-- *Death Cure* (Movie Series) – for high-stakes adventure and plot twists  
+- *Sweet Home* ([*Sweet Home* Official Trailer on YouTube](https://www.youtube.com/watch?v=7rI56NmD33Y)) – for post‑apocalyptic horror elements and survival themes (official trailer)
+- *Leviathan Slayer* ([Read *Leviathan Slayer* online](https://leviathan-manga.online/)) – for monster lore and human‑monster interaction  
+- *The Maze Runner* ([Watch *The Maze Runner* on Netflix](https://www.netflix.com/title/70291089)) – for suspenseful world‑building and survival challenges (official streaming page)
+- *The Maze Runner: The Scorch Trials* ([Watch *The Scorch Trials* on Netflix](https://www.netflix.com/title/80046310)) – for environmental hazards and adaptation scenarios
+- *The Maze Runner: The Death Cure* ([Watch *The Death Cure* on Netflix](https://www.netflix.com/title/80201038)) – for high‑stakes adventure and plot twists
 
 **Monster & Technology Concepts**
-- *The Great Wall* (Movie Series) – for the concept of a powerful Monster Queen  
-- *The Tomorrow War* (Movie Series) – for diverse monster forms and designs  
-- *Chappie* (Movie Series) – for AI-powered robotic machines and human-machine interaction  
+- *The Great Wall* ([*The Great Wall* Official Trailer on YouTube](https://www.youtube.com/watch?v=6SKI9rgqFck)) – for the concept of a powerful Monster Queen (official trailer)
+- *The Tomorrow War* ([*The Tomorrow War* Official Trailer on YouTube](https://www.youtube.com/results?search_query=The+Tomorrow+War+official+trailer)) – for diverse monster forms and futuristic combat (official trailer search)  
+- *Chappie* ([*Chappie* Official Trailer on YouTube](https://www.youtube.com/results?search_query=Chappie+official+trailer)) – for AI‑powered robotic machines and human‑machine interaction (official trailer search)
 
-These works collectively shaped the design, mechanics, and narrative tone of **Malamig na Init**, blending survival, horror, and epic battles in a post-apocalyptic world.
+These works collectively shaped the design, mechanics, and narrative tone of **Malamig na Init**, blending survival, horror, and epic battles in a post‑apocalyptic world.
 
 
